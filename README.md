@@ -1,1 +1,1 @@
-# C26-project
+This is a recipe you should follow in order to create a moist, classic Red Velvet Cake! This is made from scratch, and surprisingly easy when a just a few simple steps are followed.
